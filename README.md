@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Antoniobajic
 - 👀 I’m interested in marvel and yugioh
-- 🌱 I’m currently learning i don't know
+- 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
